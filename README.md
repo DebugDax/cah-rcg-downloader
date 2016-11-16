@@ -1,0 +1,1 @@
+Run this and let it sit in the background to amass a giant collection of comics from Cyanide and Happiness's Random Comic Generator
